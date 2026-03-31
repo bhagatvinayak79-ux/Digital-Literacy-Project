@@ -1,6 +1,4 @@
 
-
-
 ### Social Media Checklist
 
 | **Do's** | **Don'ts** |
